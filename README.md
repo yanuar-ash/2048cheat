@@ -1,1 +1,1 @@
-# 2048cheat
+Sek penting score'e okeh jajajajaja
